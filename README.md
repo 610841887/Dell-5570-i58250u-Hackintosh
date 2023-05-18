@@ -1,0 +1,1 @@
+# Dell-5570-i58250u-Hackintosh
